@@ -1,5 +1,5 @@
 ## Hi there 👋
 
-I am Hamim Hasan
+I am Mahmudul Hasan
 --------------------------------------------
 B.Sc.(Hons.) CSE.
