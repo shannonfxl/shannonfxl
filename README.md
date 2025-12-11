@@ -1,5 +1,5 @@
 ## Hi there 👋
 
-I am Mahmudul Hasan
+I am Mahamudul Hasan
 --------------------------------------------
 B.Sc.(Hons.) CSE.
